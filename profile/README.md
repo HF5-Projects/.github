@@ -1,1 +1,1 @@
-Frederik Vilhelmsen, Kristoffer Clausen, Victor Neerholt
+Frederik Vilhelmsen, Kristoffer Clausen, Victor Neerholt, Isaac Lennart Vorkoper Nielsen
